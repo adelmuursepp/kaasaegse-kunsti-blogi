@@ -10,3 +10,9 @@ Näituse pealkiri on inspiratsiooni saanud teleseriaali "Õnne 13" tegelaselt Jo
 ![](/content/images/kumu-rinnahoidjad.png)
 
 ![](/content/images/kumu-keha-lamp.png)
+
+![](/content/images/kumu-laud-liiliatega.png)
+
+Minu kindel lemmik teos näitusel oli laud liiliatega. Kohe algul jäid silma kaks aspekti teose teose juures. Esiteks, tühja suure halli toa keskel seisev katkine laud tundus väga üksildane ja mahajäetud ning mul hakkas sellest kummalisel kombel väga kahju. Selle efekti tekitas tavapärase mööbli, tooli ja muu magamistoa juurde käiva, puudumine. Teiseks väljendus vaevalt püstiseisvas ja väga õhuliselt seisvas lauas ja liiliates väga tuntavalt haprus. Kuigi kogu kompositsioon seisis kindlalt püsti, oli võimalik ette kujutada, kuidas väiksemgi raskus või tõuge viib selle tasakaalust välja ja see variseb kokku. See resoneeris minuga väga, kuna selles väljendus väga täpselt see tunne, kui mul väliselt tundub olevat kõik korras, kuid ma tunnen, et mul puudub kindel tugisüsteem ja olen vaimselt kokkuvarisemise äärel. 
+
+Samuti tundus teoses läbi käivat aja temaatika. Laua väljavahetatud jalad ja katkine sahtel näitasid minu arvates, et laud on läbi elanud erinevaid olukordi ja paljude tegevustega seotud olnud, mistõttu on näha selle kahjustused. Vastupidiselt lauale pidid liiliad olema värsked ja uued. Huvitav oli siit edasi mõelda, et kuigi see armetu laud on üsna pika aja "läbi elanud", jääb ta ka tõenäoliselt seisma tulevikus, erinevalt värsketest liiliatest, mis praegu mõjuvad väga elujõuliselt, kuid närtsivad ja lagunevad väga kiiresti. Kuna isiklikult pean valgeid liiliaid esteetika võrdkujuks oma 
