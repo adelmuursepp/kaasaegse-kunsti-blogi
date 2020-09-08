@@ -27,6 +27,8 @@ Samuti tundus teoses läbi käivat aja temaatika. Laua väljavahetatud jalad ja 
 
 Proovides mõelda, millist ideed kunstnik ise soovis väljendada, tundus mulle see küsimus irrelevantne. Minu jaoks väljendasid selliselt asetatud esemed tunnet. Nende ebaloomulik asetus pani mind tahtmatult mõtlema sellele, kuidas nad võiksid tunda ja seetõttu ma samastusin huvitaval kombel selle lauaga. Minu jaoks oleks kunstniku peale mõtlemine kaotanud osa teose võluvusest. Võib-olla lihtsalt minu soovi tõttu jätta teos võimalikult isiklikult minu omaks jääb mul tunne, et kunstnik sooviski läbi haprust ja üksildust väljendavate esemete tekitada vaatajal assotsiatsioone isiklike kogemuste ja tunnetega. 
 
+Üleüldiselt meeldis mulle näitus tervikuna väga, kuigi minu jaoks ei sobitunud mõned teosed otseselt näituse temaatikaga kokku. See tulenes peamiselt sellest, et tõlgendasin teoseid üsna loovalt ja seetõttu mu arvamus erines kuraatori omast. Selles näituses oli kindlasti tunda feministlikku joont ja sellele väga omast tähelepanu püüdmist litrite ja provokatiivse esemete asetusega. Minu jaoks oli selle näituse kõige õnnestunum ja väärtuslikum osa see, et teosed suutsid tekitada seoseid minule väga isiklike ja teistele teadmata kogemuste, tunnete või mälestustega. Kuna teosed tundusid teadvat või seostuvat nende teisega jagamata lugudega, muutus näitus personaalseks ja kunstnikul õnnestus saada minu kui vaataja usaldus.
+
 **Kasutatud allikad**
 
 [Kumu veebileht]( https://kumu.ekm.ee/syndmus/edith-karlson-mary-reid-kelley-eva-mustonen/)
