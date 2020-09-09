@@ -2,7 +2,9 @@
   "description": "<p>Adél Müürsepa blogi kaasaegse kunsti kohta.</p>",
   "cta": "<p></p>",
   "contact": {
-    "email": "adel.muursepp@real.edu.ee"
+    "email": "adel.muursepp@real.edu.ee",
+    "twitter_handle": "forestryio",
+    "github_handle": "forestryio"
   },
   "background_color": "#B1BCBC"
 }
